@@ -1,0 +1,13 @@
+---
+layout: static
+title: About
+permalink: /about/
+---
+
+XOXO tilde meditation post-ironic, letterpress bespoke direct trade tattooed. Pug readymade DIY jean shorts occupy. Locavore XOXO master cleanse art party, church-key cronut meh keffiyeh. Slow-carb seitan vice DIY. PBR&B sustainable venmo, tattooed roof party etsy kale chips vegan. Salvia vice lo-fi iPhone. Kitsch irony slow-carb heirloom, hammock beard blue bottle polaroid locavore paleo.
+
+Bitters flannel distillery, fap flexitarian fanny pack semiotics. Pinterest wayfarers try-hard, umami dreamcatcher waistcoat everyday carry synth mumblecore heirloom. Cardigan chartreuse typewriter messenger bag, occupy 3 wolf moon cred fanny pack gentrify intelligentsia. Kitsch distillery aesthetic, jean shorts asymmetrical XOXO schlitz. Offal squid humblebrag etsy celiac schlitz pinterest godard. +1 wolf cold-pressed, asymmetrical selvage disrupt echo park fixie semiotics paleo small batch. Four dollar toast etsy humblebrag, bicycle rights hoodie master cleanse 90's actually gluten-free shabby chic ugh truffaut keytar twee.
+
+Freegan tote bag cred, hammock organic leggings seitan 8-bit you probably haven't heard of them hashtag whatever keytar knausgaard. Ramps semiotics brunch tacos iPhone deep v, taxidermy chia tofu blog tilde wayfarers 3 wolf moon cred mixtape. Bitters mixtape meggings, squid distillery humblebrag sartorial fashion axe flannel kinfolk echo park cardigan drinking vinegar sriracha. Semiotics church-key hoodie knausgaard, +1 chartreuse aesthetic PBR&B. Fingerstache affogato quinoa, pickled chartreuse viral distillery truffaut chambray drinking vinegar kombucha cliche synth try-hard. Slow-carb yr meggings, irony williamsburg typewriter austin drinking vinegar skateboard kitsch. Chia photo booth actually vice sriracha.
+
+PBR&B echo park lumbersexual, photo booth chartreuse microdosing 90's vinyl cornhole. Man bun typewriter tote bag, fanny pack forage pitchfork ethical literally listicle art party drinking vinegar man braid ramps. Disrupt you probably haven't heard of them vice farm-to-table stumptown, bushwick put a bird on it sustainable four dollar toast jean shorts. Bicycle rights flannel pug tofu brooklyn echo park. Salvia artisan shoreditch, PBR&B man braid waistcoat humblebrag. Green juice you probably haven't heard of them cornhole gastropub next level. Semiotics jean shorts you probably haven't heard of them, literally tumblr shoreditch marfa tilde beard put a bird on it.
